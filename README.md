@@ -1,4 +1,4 @@
-# Serhii Solodovnyk 👋
+# 👋
 
 📧 Email: [metsubysi@gmail.com](mailto:metsubysi@gmail.com)
 
